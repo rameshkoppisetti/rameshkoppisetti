@@ -2,5 +2,5 @@
 - 👀 I’m interested in Software Development
 - 🌱 I’m currently looking for Good opurtunity to prove
 - 💞️ I’m looking to collaborate on Development projects
-- 📫 How to reach me satyarameshkoppisetti@gmail.com
+- 📫 You to reach me satyarameshkoppisetti@gmail.com
 - Passionate self-taught software developer.Always aims for challenging work.
