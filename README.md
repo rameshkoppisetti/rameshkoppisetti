@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on Development projects
 - 📫 You to reach me satyarameshkoppisetti@gmail.com
 - Connect with me on Linkedin [rameshjr](https://www.linkedin.com/in/rameshjr/)
-- Passionate self-taught software developer.Always aims for challenging work.
+- Passionate self-taught software developer. Always aims for challenging work.
