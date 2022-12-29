@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @rameshkoppisetti
 - 👀 I’m interested in Software Development
-- 🌱 I’m currently looking for Good opurtunity to prove
 - 💞️ I’m looking to collaborate on Development projects
 - 📫 You to reach me satyarameshkoppisetti@gmail.com
 - Connect with me on Linkedin [rameshjr](https://www.linkedin.com/in/rameshjr/)
